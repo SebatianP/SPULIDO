@@ -1,2 +1,3 @@
 # pacman-3d
-no reise (sad xd)
+todo lo bueno no lo es 
+by juan
